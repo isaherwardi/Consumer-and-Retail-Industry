@@ -74,22 +74,7 @@ https://www.mckinsey.com/~/media/mckinsey/industries/retail/our%20insights/persp
 
 https://www.statista.com/topics/5922/retail-market-worldwide/#topicHeader__wrapper
 
-### Top 7 Trends in Retail in 2021 | Retail Industry trends in 2021 
-
-https://youtu.be/tlPsNtVondU
-
-### 5 Retail Trends in 2022 - Retail Economics 
-
-https://youtu.be/eoWCUADRV5I
-
-### Doug Stephens: 10 Retail Archetypes of the Future | #BoFVOICES 2020 
-
-https://youtu.be/uiMnZHni3sU
-
 ## Blogs
-
-
-### External Blogs
 
 https://www.bbc.co.uk/news/business-53559116 
 
@@ -100,6 +85,7 @@ https://techcrunch.com/2019/02/04/warby-parker-dips-into-ar-with-the-launch-of-v
 https://medium.com/@brilliantbasics/if-the-high-street-is-to-be-saved-its-as-simple-as-innovate-or-die-ae13c5200c85 
 
 https://www.cnbc.com/2018/09/13/new-york-times-digital-standard-market-cashierless-store-san-francisco.html
+
 
 
 
