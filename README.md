@@ -23,21 +23,9 @@ https://en.wikipedia.org/wiki/Retail
 
 ## Business Areas
 
-![Retail Industry](/Consumer_images/Slide2.JPG)
-
-![Retail Industry](/Consumer_images/Slide3.JPG)
-
-![Retail Industry](/Consumer_images/Slide5.JPG)
-
-![Retail Industry](/Consumer_images/Slide7.JPG)
-
-![Retail Industry](/Consumer_images/Slide8.JPG)
 
 ## BVF for Consumer and Retail Industry
 
-![BVF](/Consumer_images/BVF.jpg)
 
-![Innovation](/Consumer_images/Innovation/Slide26.JPG)
 
-![Innovation](/Consumer_images/Innovation/Slide28.JPG)
 
