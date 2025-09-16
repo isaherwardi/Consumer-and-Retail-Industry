@@ -21,10 +21,7 @@ https://en.wikipedia.org/wiki/Retail
 3. [Consumer and Retail Industry Insights](Insights.md)
 4. [Innovation in Consumer and Retail Industry](Innovation.md)
 
-## Business Areas
 
-
-## BVF for Consumer and Retail Industry
 
 
 
